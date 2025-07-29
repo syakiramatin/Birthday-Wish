@@ -329,7 +329,7 @@ HABIS INI KAU JUGA 20😏
 KUALAT LHO NANTI🙂‍↔
 WLEEKKKK😝
 
-DI ULTAH KE-19 INI MUNGKIN AKU BARU BISA KASIH UCAPAN INI SAMA KARYA FOTO KITA👉🏻👈🏻
+DI ULTAH KE-19 INI MUNGKIN AKU BARU BISA KASIH UCAPAN INI👉🏻👈🏻
 AKU BELUM BISA KASIH KADO LANGSUNG KYK TAHUN SEBELUMNYA😔
 TAPI TENANG BESSS😉
 KADO AKAN MENYUSUL MU KE MALANG~~~ MWHEHEHEHE😋😋😋
@@ -337,7 +337,7 @@ DOAKAN AJA YAH (jujurly aku gk megang uang samsek soalnya)🤧
 (rill lho bes bukannya aku gk mau ngado atau nyepelein atau gmn,
 suwer ieu mah dah sebulan full aku mikir gmn cara ngadoin kamu,
 tapi rejeki tak kunjung datang, hiksss, sabar ya bess, sekali lagi maaf blm bisa kasih kado langsung)
-HOPE U LIKE IT DEH, NIH FOTO DIBUAT KHUSUS UNTUKMU~~🥴🫰🏻✨
+HOPE U LIKE IT DEH~~🥴🫰🏻✨
 
 MAYBE ENOUGH FROM ME🙂‍↕
 MASIH BANYAK HAL YANG GAK AKAN MUAT KLO KU TULIS DISINI☝🏻
